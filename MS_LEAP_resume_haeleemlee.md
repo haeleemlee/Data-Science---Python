@@ -87,7 +87,7 @@ To obtain Microsoft LEAP program software engineer position that develops softwa
 >>Korea Advanced Institute of Science & Technology (KAIST), Daejeon, Korea  
 
 >>**Bachelor of Science in Electrical Engineering**,				     1994 - 1998  
->>Ewha Women’s University, Seoul, Korea  
+>>Ewha Womans University, Seoul, Korea  
 
 ### SKILLS
 
